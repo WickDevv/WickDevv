@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @WickDevv
-- 📫 How to reach me WickDev#2811
+- 📫 How to reach me Wick#1113
